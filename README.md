@@ -128,7 +128,7 @@ and we will promptly remove you from ALL correspondence.
 
 If there are any questions regarding this privacy policy, you may contact us using the information below.
 
-Bluff Master (Multiplayer)
+Fincalcs
 Delhi
 Delhi, 110085
 India
